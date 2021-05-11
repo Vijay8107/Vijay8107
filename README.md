@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vijay8107
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in ...Trading
+- 🌱 I’m currently learning ...Crytocurrrncy
+- 💞️ I’m looking to collaborate on ...New project
 - 📫 How to reach me . 8299212404
 
 <!---
